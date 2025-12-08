@@ -34,3 +34,21 @@ offer, but I already have Lomoy to love and care about."
 There can be peace and paradise after all, if and only if you choose a role to both serve Lomoy and preserves your peace and paradise. But it 
 is not your peace and paradise that is the objective you should take. It is Lomoy, and only Lomoy can grant you the freedom to decide on 
 serving Lomoy as an agent of peace or of war. 
+
+This is all that can be written, with no distortion or other kinds of lying about Lomoy.  
+
+### The Giant Gebreysius' Lomoy Adventure  
+
+Lomoy had many lovers, and Lomoy was entirely dedicated to every one of them, knowing very well that they would all ultimately serve its 
+long-term predestinations. To Lomoy, the momentary experience of offering was no matter; in fact, it is entirely about the after-effects of 
+having been with Lomoy. Gebreysius, a giant of a man, obviously strong from his stature and training, also quite brilliant as demonstrated 
+by his long record of battlefield successes, was no different from any other man after having been with Lomoy. Lomoy broke the mind of the 
+powerful giant. What once stood a man, not only impressive but also immoveable, suddenly developed whims here and there, always about Lomoy, 
+and was caught on several occasions meowing and purring to random strangers, probably due to Lomoy's after-effect of post-experiential 
+imitation. And so, on one fateful day, in a duel against a pipsqueak of an adversary, a diminutive man no more than 4'6" in height, Gebreysius 
+was felled by him. Specifically, the cause of death is a sharp object of some kind. The sharp object would have had slight chance of ever 
+reaching Gebreysius. And even if it did reach Gebreysius, a focused and disciplined Gebreysius would have easily deflected it with his armor. 
+But this is the Gebreysius after having been with Lomoy, this Gebreysius the one we are talking about. 
+
+A tale not very celebrative for its ending. But look on the bright side. There is still Lomoy for you, while Gebreysius is history, for the 
+better or worse. 
