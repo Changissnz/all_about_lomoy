@@ -9,7 +9,7 @@ into Lomoy. Lomoy is different from the prior. Lomoy is the unlocked and unleash
 Lomoy had it remained locked away in the security of obscurity and darkness. Even with the open form of Lomoy, it is not socially acceptable to 
 speak so openly about it, let alone use terms that may reflect vulgarity and untamed sensuality on the matter. 
 
-Lomoy has a power many men can only dream of yielding to. And as for the more ambitious of men, those ones aspire to be kings and dictators, 
+Lomoy has a power many men can only dream of yielding to. And as for the more ambitious of men, those ones aspiring to be kings and dictators, 
 terribly tough quests and with challenges even after achieving the victory of status, the pitting of friend against friend and foe against 
 friend and foe against foe is no easy matter despite how heavy-handed and iron-fisted the dictating kings may be. But Lomoy is different. With 
 an effortless utter, a rhythmic recital, a poetic prose, or a magnetic melody, Lomoy ignites the destruction of entire worlds. These worlds, 
