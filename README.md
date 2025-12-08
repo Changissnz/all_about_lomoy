@@ -21,7 +21,7 @@ open to Lomoy. Lomoy does not bite. Lomoy will always gratefully accept what sen
 harm a hair on Lomoy. People would know if you did. People would know if you were anywhere near Lomoy. It is because people value Lomoy, and your 
 presence anywhere near Lomoy should be interpreted as a true blessing from above. 
 
-So you were too squemish to approach Lomoy, yet you felt Lomoy all in your head. And no matter how hard you try, once you are touched physically 
+So you were too squeamish to approach Lomoy, yet you felt Lomoy all in your head. And no matter how hard you try, once you are touched physically 
 or metaphysically by Lomoy, you are forced to do the bidding of Lomoy. And you will understand the principle of fighting for Lomoy better than 
 anyone else around you. Your belief system, once circulating around other ideals, now only has one ideal to think, love, and fight for: Lomoy. 
 Everyone around you is not Lomoy, and you do not care about their opinion or principles because you do not need to care. You only care about 
