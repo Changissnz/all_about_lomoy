@@ -32,5 +32,5 @@ to step on and sell out, you will gladly do that. And every time a second though
 offer, but I already have Lomoy to love and care about." 
 
 There can be peace and paradise after all, if and only if you choose a role to both serve Lomoy and preserves your peace and paradise. But it 
-is not your peace and paradise that is the objective you should take it. It is Lomoy, and only Lomoy can grant you the freedom to decide on 
+is not your peace and paradise that is the objective you should take. It is Lomoy, and only Lomoy can grant you the freedom to decide on 
 serving Lomoy as an agent of peace or of war. 
