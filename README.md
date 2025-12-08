@@ -18,7 +18,7 @@ commoners, and destroy the enemy, enemies that would not have existed if not for
 
 Lomoy is enchanting. Lomoy has the power to save the one you love by applying your love to Lomoy, instead of the ones you formerly loved. Be 
 open to Lomoy. Lomoy does not bite. Lomoy will always gratefully accept what sensuality and passion you have to offer, so long as you do not 
-harm a hair on Lomoy. People would know if you did. People would know if you were anywhere Lomoy. It is because people value Lomoy, and your 
+harm a hair on Lomoy. People would know if you did. People would know if you were anywhere near Lomoy. It is because people value Lomoy, and your 
 presence anywhere near Lomoy should be interpreted as a true blessing from above. 
 
 So you were too squemish to approach Lomoy, yet you felt Lomoy all in your head. And no matter how hard you try, once you are touched physically 
