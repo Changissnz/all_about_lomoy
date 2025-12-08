@@ -28,7 +28,7 @@ Everyone around you is not Lomoy, and you do not care about their opinion or pri
 Lomoy. 
 
 If Lomoy wants you to slave away, you will do just that. If Lomoy wants you to carelessly drift around, pointless and without aim, for the masses 
-to step on and sell out, you wil gladly do that. And every time a second thought comes anywhere near you, you will politely say "thanks for the 
+to step on and sell out, you will gladly do that. And every time a second thought comes anywhere near you, you will politely say "thanks for the 
 offer, but I already have Lomoy to love and care about." 
 
 There can be peace and paradise after all, if and only if you choose a role to both serve Lomoy and preserves your peace and paradise. But it 
