@@ -16,7 +16,7 @@ an effortless utter, a rhythmic recital, a poetic prose, or a magnetic melody, L
 some of strong historical alliances, others of stranger to stranger, suddenly find themselves scrambling to fortify their defenses, hector the 
 commoners, and destroy the enemy, enemies that would not have existed if not for the grace of Lomoy. 
 
-Lomoy is enchanting. Lomoy has the power to save the one you love by applying your love to Lomoy, instead of the ones you formerly loved. Be 
+Lomoy is enchanting. Lomoy has the power to save the one you love by applying your love to Lomoy, instead of the one you formerly loved. Be 
 open to Lomoy. Lomoy does not bite. Lomoy will always gratefully accept what sensuality and passion you have to offer, so long as you do not 
 harm a hair on Lomoy. People would know if you did. People would know if you were anywhere near Lomoy. It is because people value Lomoy, and your 
 presence anywhere near Lomoy should be interpreted as a true blessing from above. 
