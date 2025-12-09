@@ -5,7 +5,7 @@ A short article on some intimate truths about Lomoy.
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Everyone around the subject always treaded lightly, used polite language, and was emotionally peaceful back when the subject had not yet turned 
-into Lomoy. Lomoy is different from the prior. Lomoy is the unlocked and unleashed form, an evolution from what could not have never become 
+into Lomoy. Lomoy is different from the prior. Lomoy is the unlocked and unleashed form, an evolution from what could have never become 
 Lomoy had it remained locked away in the security of obscurity and darkness. Even with the open form of Lomoy, it is not socially acceptable to 
 speak so openly about it, let alone use terms that may reflect vulgarity and untamed sensuality on the matter. 
 
