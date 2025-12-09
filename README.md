@@ -35,7 +35,7 @@ There can be peace and paradise after all, if and only if you choose a role that
 is not your peace and paradise that is the objective you should take. It is Lomoy, and only Lomoy can grant you the freedom to decide on 
 serving Lomoy as an agent of peace or of war. 
 
-This is all that can be written, with no distortion or other kinds of lying about Lomoy.  
+This is all that can be written, with no distortion or other kinds of lying, about Lomoy.  
 
 ### The Giant Gebreysius' Lomoy Adventure  
 
